@@ -1,0 +1,171 @@
+- Chapter 1
+    - Greeting and Leave Taking
+        - Formal Greeting ↓ 
+            - Good morning (until about lunch time, or before 12 a.m.)
+            - Good afternoon (12-6 p.m.)
+            - Good evening (until about 9 p.m.)
+        - Informal Greeting ↓ 
+            - The response ↓ 
+                - Hi, Jack!
+                - Morning, Tina!
+                - Hello
+            - Hi, Jane!
+            - Morning, Jim!
+            - Hello
+        - The Initial Greeting
+- How are you?
+- How's it going?
+- How are you doing?
+- How's life?
+The responses ↓ 
+            - Very well, thank you and how are you?
+            - I'm good/okay/alright
+            - Oh, pretty good.
+            - Not too bad, thanks
+            - Fine thanks
+            - Excellent
+        - Pre-Closing ↓ 
+            - OK, then...
+            - I've got to go now
+            - So, I'll see you next week
+            - I think I'd better be going now
+            - Well, it's time for me to leave
+            - I think it's already late at night
+            - I must be going home
+        - The Situation 
+            - You met your teacher on the way home. It's about 2 p.m. what will you say to greet him?→Good afternoon
+            - You are in your friend's house. It's about 7 p.m. you are going to go home now. What will you say?→Good evening
+            - You are in the school yard. You met your classmate, Raehan. It's about 9 a.m. What will you say?→Good morning
+    - Thanking-Apologizing 
+        - Thanking expressions and their responses
+            - Thanking ↓ 
+                - Thank you
+                - Thanks
+                - I am grateful
+                - Thank you so much
+                - Thank you very much
+                - Thanks a lot
+            - Responses ↓ 
+                - You are welcome
+                - No problem
+                - Not at all
+                - That's all right
+                - Don't mention it
+                - It's my pleasure
+                - My pleasure
+                - That's O.K.
+            - Thanking Dialogue ↓ 
+                - Rama: "Hi, Amar. I have hamburger for you."
+                - Amar: "Hi, Rama. Owh, thank you so much. I really like hamburger."
+                - Rama: "No problem."
+        - Apologizing expressions and their responses
+            - Apologizing ↓ 
+                - I apologize
+                - I really must apologize
+                - I do apologize
+                - I'm very sorry
+                - I am sorry
+                - Sorry
+                - I'm extremely sorry
+            - Responses ↓ 
+                - Okay
+                - That's alright
+                - Don't worry about that
+                - It doesn't matter
+                - Forget it 
+            - Apologizing Dialogue ↓ 
+                - Arya: “I do apologize Miss Rochmah because i don’t bring my homework.”
+                - Miss Rochmah: “Okay, i forgive it. But tomorrow you must do your homework."
+                - Arya: “Yes, Miss.”
+                - Miss Rochmah: “By the way, why you don’t bring your homework?”
+                - Arya: “I don’t bring my homework because my house fires.”
+                - Miss Rochmah: “What is burning?”
+                - Arya: “My workbook, Miss.”
+            - 
+    - 
+- Chapter 2 
+    - Introducing Oneself and Someone
+        - Introducing Oneself ↓ 
+            - v  My name is Sahal (Nama saya Sahal) 
+            - v  My full name is Sahal Ahmad (Nama lengkap saya Sahal Ahmad)
+            - v  My nick name is Sahal (Nama panggilan saya adalah Sahal)
+            - v  Hi, I am Sahal (Hai, saya Sahal)
+            - v  Hello, my name is Sahal (Halo, nama saya Sahal)
+            - v  Good morning. My name is Sahal (Selamat pagi. Nama saya Sahal)
+            - v  May I introduce myself? My name is Sahal (Bolehkah saya memperkenalkan diri? Nama saya Sahal)
+            - v  Let me introduce myself. My name is Sahal. (Ijinkan saya memperkenalkan diri. Nama saya Sahal)
+            - v  First of all, I would like to introduce myself. My name is Sahal (Sebelumnya, saya ingin memperkenalkan diri dulu. Nama saya Sahal)
+            - v  How do you do? My name is Sahal (How do you do?. Nama saya Sahal)
+        - Responses to introducing oneself ↓ 
+            - v  Hi, I'm Andika. Glad to meet you. (Hai, saya Andika. Senang bertemu dengan anda)
+            - v  Hello, My name is Andika Pleased to meet you (Halo, nama saya Andika. Senang bertemu dengan anda)
+            - v  Good morning. I am Andika How do you do?. (Selamat pagi. Nama saya Andika. How do you do?)
+            - v  How do you do? My name is Andika. Nice to meet you (How do you do?. Nama saya Andika. Senang bertemu dengan anda)      
+        - Introducing Others ↓ 
+            - Do you know Sahal? (Apakah anda tahu Sahal?)
+            - Have you met Sahal? (Pernahkah anda bertemu Sahal?)
+            - This is a friend of mine, Andika. (Ini teman saya, Andika)
+            - Sahal, this is Andika, my friend. (Sahal, ini Andika, teman saya)
+            - May I introduce my friendi? (Bolehkan saya memperkenalkan teman saya?)
+            - Please allow me to introduce our new Administration Manager. (Ijinkan saya untuk memperkenalkan manajer administrasi kita yang baru)
+            - Let me introduce you to Mrs. Lina our new Marketing Manager.  Mrs. Lina. this is Mr. Lutfi from Java Plantation Company. (Ijinkan saya untuk memperkenalkan anda kepada Ibu Lina, Manajer Marketing baru kita. Ibu Lina, Ini adalah Bapak Lutfi dari perusahaan Java Plantation).
+        - Responses to introducing others ↓ 
+            - No, I don't think so. (Sepertinya tidak)
+            - No, I haven't. (Tidak, aku belum pernah)
+            - Hi, glad to meet you. I am Andika. (Hai, senang bertemu dengan anda. Saya Andika)
+            - Hello, Okki. Pleased to meet you. (Halo Andika. Senang bertemu denganmu)
+            - I am glad to know you (Saya senang bisa mengenal anda)
+            - It is nice to see you. (Senang bisa melihat anda)
+            - How do you do? (Ungkapan saat baru bertemu pertama kalinya)
+            - How do you do? It is very nice to meet you. (How do you do? senang sekali bisa bertemu dengan anda)
+        - Contoh Teks Introducing Oneself↔Good morning all, allow me to introduce myself in. My name is Ruby Anindita. I was born in Padang on 30 November 2009. Now I live in Bandung. Right now I      stayed at my uncle’s house. Now allow me to introduce myself further. I like things that smell of adventurous, and small things like reading, watching, and spent my free time by doing nothing. Okay now about me and my family,  I am the second child in my family. I have a little sister, and she is kindergarten student. My father is a Teacher of English which is  named Dodi Sudirman. While my mother is a housewife.I love my family more than anything. Well that’s my introduction this time. Pleased to meet you.
+(Selamat pagi semua, izinkan saya untuk memperkenalkan diri di. Nama saya Ruby Anindita. Saya lahir di Padang pada tanggal 30 November 2009. Sekarang saya tinggal di Bandung. Saat ini aku tinggal di rumah pamanku. Sekarang izinkan saya untuk memperkenalkan diri lebih lanjut. Saya suka hal-hal yang berbau petualangan, dan hal-hal kecil seperti membaca, menonton, dan menghabiskan waktu luang saya tanpa melakukan apa-apa. Oke sekarang tentang saya dan keluarga saya, saya anak kedua dalam keluarga saya. Aku punya adik, dan dia siswa TK. Ayah saya adalah Guru bahasa Inggris yang bernama Dodi Sudirman. Sementara ibu saya adalah ibu rumah tangga. Saya mencintai keluarga saya lebih dari apa pun. Nah itulah pengenalan diri saya kali ini. Senang bertemu denganmu.)
+        - Contoh Dialog Introducing Oneself ↓ 
+            - Gilang : Excuse me. I don’t think we have met, I’m Gilang. (Permisi, sepertinya kita belum pernah bertemu, saya Gilang)
+            - Nando : Hello. I’m Nando. I am your new neighbor. (Halo, Saya Nanda. Saya tetangga barumu)
+            - Gilang : Oh really?. You move to the house next to me, aren't you? (Oh benarkah? Kamu pindah ke rumah disebelah saya kan?)
+            - Nando : Yes it is. Please come to my house this afternoon. I baked some cookies. (Iya. Tolong datang sore ini ke rumah saya. Saya sudah memanggang kue kering)
+            - Gilang : Sure! Thanks. Nice to know you Nando. (Tentu saja! Terima Kasih. Senang bisa mengenalmu Nando)
+            - Nando : Nice to know you too Gilang. (Senang bisa mengenalmu juga Gilang)
+        - Contoh Dialog Introducing Others ↓ 
+            - Silvia : That’s Deri. Do you know him? (Itu Deri. Apakah kamu mengenalnya?)
+            - Pipit : No, I don’t. (Tidak, aku tidak mengenalnya)
+            - Silvia : Hello, Deri. How are you? (Halo Deri. Apa kabar?)
+            - Deri : Hello, Silvia. I'm fine thanks. (Hai Silvia, aku baik baik saja terima kasih)
+            - Silvia : Deri, this is a friend of mine, Pipit Nurlaila. (Deri ini temanku, Pipit Nurlaila)
+            - Deri : Hello Pipit. Pleased to meet you. (Halo Pipit, senang bertemu denganmu)
+            - Pipit : Hi Deri, Pleased to meet you too. (Hai Deri, senang bertemu denganmu juga)
+    - Possesive Adjective and Pronoun
+        - Possesive Adjective↔adalah kata-kata sifat yang digunakan untuk menunjukkan kepemilikan
+ terhadap suatu noun. Dalam susunan grammar, possessive adjective biasanya diletakkan  tepat di depan noun yang dimilikinya.
+        - Possesive Adjective meliputi ↓ 
+            - My
+            - Your
+            - His
+            - Her
+            - Their
+            - Our
+            - Its
+        - Possesive Pronoun↔adalah kata ganti orang yang digunakan untuk menunjukkan kepemilikan atau suatu benda. Berbeda dengan possessive adjective, possessive pronoun bisa menjadi subject mau pun object.
+        - Possesive pronoun meliputi ↓ 
+            - Mine
+            - Yours
+            - His
+            - Hers
+            - Theirs
+            - Ours
+        - Contoh possesive adjective ↓ 
+            - This is my dearest friend, her name is Alisa
+            - I like your new shoes; they look good and really fashionable!
+            - You’ve broken his ruler, do apologize to him!
+            - She liked to stay in her garden, watching as the sun went down in the dawn
+            - This is their picture when they were still together as a group bands
+            - Don’t tell our secret to anyone, or we will kick you out from the group
+            - An owl can rotate its neck until 180 degrees, what an awesome bird, isn’t it?
+        - Contoh possesive pronoun ↓ 
+            - The kite is mine, please handle it carefully
+            - Don’t be afraid to take it, the food is yours
+            - This car and motorcycle are his, not mine
+            - The decisions are hers, so let the ladies choose
+            - We’ll pay for theirs, too, so don’t be afraid
+            - No, why do they need to pay for ours, too? We’ll pay for the meals by ourselves!
