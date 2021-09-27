@@ -12,7 +12,7 @@
         - Termasuk golongan surat↔madinah
         - Terdiri dari→6 Ayat
         - Surat ke↔114
-    - Arti Surat ↓ 
+    - Arti ayat ↓ 
         - 1↔Katakanlah, "Aku berlindung kepada Tuhannya manusia,
         - 2↔Raja manusia,
         - 3↔sembahan manusia,
@@ -27,9 +27,20 @@
         - Termasuk golongan surat↔Makkiyah
         - Terdiri dari→5 ayat
         - Surat ke-↔113
-    - Arti surat ↓ 
+    - Arti ayat ↓ 
         - 1↔Katakanlah, "Aku berlindung kepada Tuhan yang menguasai subuh (fajar),
         - 2↔dari kejahatan (makhluk yang) Dia ciptakan,
         - 3↔dan dari kejahatan malam apabila telah gelap gulita,
         - 4↔dan dari kejahatan (perempuan-perempan) penyihir yang meniup pada buhul-buhl (talinya),
         - 5↔dan dari kejahatan orang yang dengki apabila dia dengki."
+- Surat Al-Ikhlas ↓ 
+    - Pengenalan ↓ 
+        - Arti kata Al-Ikhlas↔(keesaan Allah)
+        - Termasuk golongan surat↔Makkiyah
+        - Surat ke-↔112
+        - Terdiri dari↔4 ayat
+    - Arti ayat ↓ 
+        - 1↔katakanlah (Muhammad), "Dialah Allah, Yang Maha Esa.
+        - 2↔Allah tempat meminta segala sesuatu.
+        - 3↔(Allah) tidak beranak dan tidak pula diperanakkan.
+        - 4↔Dan tidak ada sesuatu yang setara dengan Dia."
