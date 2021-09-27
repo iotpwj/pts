@@ -22,7 +22,7 @@
 - Surat Al-Falaq ↓ 
     - Pengenalan ↓ 
         - Arti kata Al-Falaq↔Waktu Subuh / subuh
-        - [Surat An-Nas dan Al-Falaq disebut](link_generated_on_download) 
+        - Surat An-Nas dan Al-Falaq disebut↔Al Mu'awwidzatain sebab  dua surat yang menuntun pembacanya menuju tempat perlindungan.
         - Surat Al-Falaq disebut↔al mu’awwidzah al ‘ula
         - Termasuk golongan surat↔Makkiyah
         - Terdiri dari→5 ayat
@@ -33,4 +33,3 @@
         - 3↔dan dari kejahatan malam apabila telah gelap gulita,
         - 4↔dan dari kejahatan (perempuan-perempan) penyihir yang meniup pada buhul-buhl (talinya),
         - 5↔dan dari kejahatan orang yang dengki apabila dia dengki."
-- 
